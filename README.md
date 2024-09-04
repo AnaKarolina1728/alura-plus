@@ -1,1 +1,5 @@
-# alura-plus
+# alura-plus![computador](https://github.com/user-attachments/assets/b8e2685d-eee8-4632-b403-34d8b74417d1)
+![Telas (3)](https://github.com/user-attachments/assets/50a2a92d-6659-480b-9500-8b70fb22aaba)
+![Telas (2)](https://github.com/user-attachments/assets/7977a735-9e92-44d3-9b48-45645a9230e2)
+![Uploading Background (1).png…]()
+![Uploading Background.png…]()
